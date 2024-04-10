@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to write codes using python 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .. through my email faithcheron25@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... popular Miss❣️
 - ⚡ Fun fact: ...Am so high even my weight cannot bring me down 😂
 
 <!---
